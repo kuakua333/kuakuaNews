@@ -3272,3 +3272,6 @@ https://x.com/zk_crypto/status/1956543342784946601
 - **2025-08-16 13:47**
   _メディアあり_
   [TGリンク](https://t.me/https://t.me/KudasaiJP/3618359)
+- **2025-08-16 14:04**
+  _メディアあり_
+  [TGリンク](https://t.me/https://t.me/KudasaiJP/3618360)
